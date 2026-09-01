@@ -7,7 +7,7 @@ Dedicated Computer Science with Network Security professional combining hands-on
 - 🌍 Based in Mauritius
 - 💼 Currently working as an IT Officer
 - 🎓 Pursuing BSc (Hons) Computer Science with Network Security @ UTM
-- ✉️ Connect with me on [LinkedIn](YOUR_LINKEDIN_URL_HERE)
+- ✉️ Connect with me on [LinkedIn](https://www.linkedin.com/in/khooshita-ramsaha-265642291)
 
 ---
 
